@@ -1,5 +1,6 @@
 ### Hi there, I'm [Rüveyda Halıcı](https://github.com/ruveydahalici06/) 👋
 
+![1618941599034](https://user-images.githubusercontent.com/34040346/121818791-f48ae680-cc91-11eb-9e3d-4a5882b9f4ba.jpg)
 
 
 ## Connect with me:
